@@ -1,1 +1,1 @@
-# Proyecto-Instituto-
+# Proyecto-Instituto-Github-Pages
